@@ -1,0 +1,2 @@
+# 7473054d-1f42-45f7-819e-3922352cc527-hero-1
+Hero section variant 1 for 7473054d-1f42-45f7-819e-3922352cc527
